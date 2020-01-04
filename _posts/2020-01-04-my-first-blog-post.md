@@ -1,0 +1,1 @@
+**Montreal Candiens signed Kovalchuk**
